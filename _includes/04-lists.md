@@ -1,5 +1,5 @@
-A few things about what i love
+**_A few things about what i love_** .
 
-1.Playing soccer
-2.Learning Languages
-3.Talking to People
+ 1._Playing soccer
+ 2._Learning Languages
+ 3._Talking to People
