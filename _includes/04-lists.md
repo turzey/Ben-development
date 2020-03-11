@@ -1,5 +1,5 @@
-Hum.. A few things about my favorite things 
+A few things about what i love
 
-1. i love playing soccer on weekends.
-2. i enjoy going out with my girlfriend.
-3. i always lookforwrd to challenges.
+1.Playing soccer
+2.Learning Languages
+3.Talking to People
