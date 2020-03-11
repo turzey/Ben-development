@@ -1,6 +1,6 @@
 ## Ben Development
 
-Welcome to **your** repository this is a short description about my work .
+Welcome to **My portofolio** repository this is a short description about my work .
 
 Oh! I haven't introduced myself...
 
