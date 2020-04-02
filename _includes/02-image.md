@@ -1,1 +1,1 @@
-![image of turzeyMasterLogo](https://media-exp1.licdn.com/dms/image/C4D16AQFZ8G9byHazaQ/profile-displaybackgroundimage-shrink_350_1400/0?e=1589414400&v=beta&t=o6waj1HSxPm0T37sJ7TOYXXqyZ5AeZEB3WQqA_rU7jM)
+![image of turzeyMasterLogo](https://photos.google.com/photo/AF1QipOBmpkL0Lv0SE0G2ar3fiq0-TG-Wsy1fpr0rtaW)
